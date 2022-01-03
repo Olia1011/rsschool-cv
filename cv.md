@@ -1,0 +1,5 @@
+## html-coder # Melnyk Olha >Before I pursued career in aviation sphere and logistics, I have good communication skills with people and teamwork. ### PROJECTS [HTML,CSS][//http//....] [JS][//http//....] ### Education - DONETSK NATIONAL TECHNICAL UNIVERSITY
+(September 2007 - May 2012) (Physical and metallurgical department, Specialty: "Material engineering") - KYIV INSTITUTE FOR INTERPRITERS AND TRANSLATORS (September 2012 - February 2015) (Department of the second higher education, Specialty: "Philologist
+- translator") - UNIVERSITY OF ECONOMY AND LOW "KROK" (September 2015 - April 2015) (Department of the second higher education, Specialty: "Finance and credit") ### Work experience - LLP "KUMKAYA", secretary (October 2015 - June 2016) - "UKRAINE INTERNATIONAL
+AIRLINES", cabin-crew (June 2016 - September 2019) - LLP "Abron", international operations manager (September 2019 - May 2020) - Individual enterpreneur ### Contacts C: +380958629645 e: olia220456@ukr.net ### Tech Skills - HTML5 - CSS3 - Git - WEbPack
+### Soft Skills - Scrum - Teamwork ### Languages - English - Upper-Intermidiate - German - Elementary - Ukrainian - Advanced - Russian - Advansed
